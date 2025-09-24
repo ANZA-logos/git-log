@@ -14,6 +14,8 @@
 
 **atulraj85** – I love the idea of taking humanity beyond and reducing the information gap.  
 
+**Anza s**-in the hands of compassionate AI ,our imperfections becomed art.
+
 **Gayathri** – Awesome explanation by Jibu Mathew, AI + Compassion is a great effort, and I would love to watch the execution and forward path.  
 
 **psreyas09** – The issue of global warming is a serious issue and this is a nice solution to start to resolve this problem, so this is a good idea.  
